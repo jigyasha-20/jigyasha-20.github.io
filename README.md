@@ -1,1 +1,0 @@
-# jigyasha-20.github.io
